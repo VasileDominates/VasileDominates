@@ -2,7 +2,7 @@
 - 👀 I’m interested in history and coding
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on different projects
-- 📫 How to reach me @vasilefionescu@proton.me
+- 📫 How to reach me vasilefionescu@proton.me
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I have XY Chromosomes
 
