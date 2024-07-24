@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @VasileDominates
-- 👀 I’m interested in history and coding
-- 🌱 I’m currently learning python
+- 👀 I’m interested in many things
+- 🌱 I’m currently learning a lot
 - 💞️ I’m looking to collaborate on different projects
 - 📫 How to reach me vasilefionescu@proton.me
 - 😄 Pronouns: He/Him
